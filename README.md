@@ -1,6 +1,6 @@
 - 👨‍🎓formado em gastronomia - chefe de cozinha - escola chef gourmet.
 - 📕cusando DS no senai
-- 🥇tri campeão catarinense em natação
+- 🥇🥇🥇tri campeão catarinense em natação
 - 🥇1 campeão estadual em handebol - joguei no time de itajai
 - 🥇1 campeão de tenis de mesa - joguei no estado bahia em salvador
 - 
